@@ -20,8 +20,8 @@ Me caracterizo por mi capacidad analítica, aprendizaje continuo y orientación 
 
 ## Contacto
 
-Correo: tucorreo@email.com
+Correo: benja,jelvez@gmail.com
 
-LinkedIn: https://linkedin.com/in/tuperfil
+LinkedIn: www.linkedin.com/in/benjamin-jelvez-espinoza-a931342a2
 
 GitHub: https://github.com/tuusuario# benjajelvez
